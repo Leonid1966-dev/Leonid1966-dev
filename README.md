@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Leonid1966-dev
+- 👋 Hi, I’m Leonid1966-dev
 - 👀 I am interested in getting a profession
 - 🌱 I’m currently learning
 - 💞️ I want to cooperate in the field of education 
